@@ -6,7 +6,7 @@
 - 🤔 I’m looking for help with Payten Edition
 - 💬 Ask me about N/A
 - 📫 How to reach me: GameJolt: https://gamejolt.com/@AnneBoonchuysModdingAccount
-- 😄 Pronouns: He/Him, maybe They/Them
+- 😄 Pronouns: He/Him, She/her, and They/Them
 - ⚡ Fun fact: I give Big City Greens Incidentals attention
 
 ![Screenshot 2023-02-19 174317](https://user-images.githubusercontent.com/94698464/220004706-8ad03792-e2b6-404b-9ffe-effe4f00b976.png)
